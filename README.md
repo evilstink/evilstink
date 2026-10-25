@@ -1,4 +1,5 @@
-## Hi there 👋
+<img width="386" height="304" alt="2ea83ca85d906f9d05e50dd14f15360c" src="https://github.com/user-attachments/assets/066f3cbe-e120-42d1-9c10-6d95636b3d0e" />
+
 
 <!--
 **evilstink/evilstink** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
