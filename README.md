@@ -1,6 +1,12 @@
 <img width="386" height="304" alt="2ea83ca85d906f9d05e50dd14f15360c" src="https://github.com/user-attachments/assets/066f3cbe-e120-42d1-9c10-6d95636b3d0e" />
 
-
+c + h okay !! ^_^
+>
+20
+>
+15 dni beyond pleasantries please !!!
+>
+>how the fuck do i center shit im a little knowledgeless chud
 <!--
 **evilstink/evilstink** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
