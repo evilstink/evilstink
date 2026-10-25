@@ -1,12 +1,12 @@
-<img width="386" height="304" alt="2ea83ca85d906f9d05e50dd14f15360c" src="https://github.com/user-attachments/assets/066f3cbe-e120-42d1-9c10-6d95636b3d0e" />
+<p align="center"> <img width="386" height="304" alt="2ea83ca85d906f9d05e50dd14f15360c" src="https://github.com/user-attachments/assets/066f3cbe-e120-42d1-9c10-6d95636b3d0e" /> </p>
 
-c + h okay !! ^_^
->
-20
->
-15 n under dni beyond pleasantries please !!!
->
->how the fuck do i center shit im a little knowledgeless chud
+<p align="center"> c + h okay !! ^_^ </p>
+
+<p align="center"> 20 </p>
+
+<p align="center"> 15 n under dni beyond pleasantries please !!! </p>
+
+><p align="center"> how the fuck do i center shit im a little knowledgeless chud </p>
 <!--
 **evilstink/evilstink** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
