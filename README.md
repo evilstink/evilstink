@@ -6,7 +6,6 @@
 
 <p align="center"> 15 n under dni beyond pleasantries please !!! </p>
 
-><p align="center"> how the fuck do i center shit im a little knowledgeless chud </p>
 <!--
 **evilstink/evilstink** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
