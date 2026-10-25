@@ -4,7 +4,7 @@ c + h okay !! ^_^
 >
 20
 >
-15 dni beyond pleasantries please !!!
+15 n under dni beyond pleasantries please !!!
 >
 >how the fuck do i center shit im a little knowledgeless chud
 <!--
